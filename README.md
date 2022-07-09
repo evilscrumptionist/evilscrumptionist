@@ -1,6 +1,6 @@
 ### about me
 
-![isaac.png](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQV8KkvyZBLXm-zcxBpcaxwVMr7ZLCUMJbQzg&usqp=CAU)
+![thelost](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQakTqwMD6PUaX9rIahSxWGUjrpVJRYph3tSw&usqp=CAU)
 
 -i am lazarus and i do building stuffs or art (actually no im huge artblocked)
 
@@ -14,7 +14,16 @@
 
 -i play pt,tboi, etc etc
 
-![them.png](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRW3-H7ZQyjz5H0_YnxRtzWJrK3Tv-2ARjIhg&usqp=CAU)
+
+![uhoh](https://static.wikia.nocookie.net/bindingofisaacre_gamepedia/images/8/89/Transition_Lost_Tainted.png/revision/latest/scale-to-width-down/250?cb=20210826045000)
+
+-if i have idle then i might be free to int
+
+-if i have do not disturb its dniuf
+
+(also sometimes i just dont follow the rules of my status)
+
+![them](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRW3-H7ZQyjz5H0_YnxRtzWJrK3Tv-2ARjIhg&usqp=CAU)
 
 if you are a friend of mine
 
