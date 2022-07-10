@@ -33,3 +33,7 @@ if you are a friend of mine
 
 hello and welcome to my github profile lmao
 
+![line](https://i.imgur.com/4M7IWwP.gif)
+
+![hatkid](https://static.wikia.nocookie.net/a-hat-in-time/images/5/54/Yeehaw.png/revision/latest?cb=20190514090118)
+thanks for reading!!
