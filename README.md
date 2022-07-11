@@ -37,5 +37,4 @@ hello and welcome to my github profile lmao
 
 ~
 
-![hot_god](https://user-images.githubusercontent.com/108969826/178188015-d2bdc2d9-6e1d-4855-aa87-35bff5f072cb.png)
 ![fluffy](https://user-images.githubusercontent.com/108969826/178188023-9720e50e-01c4-4031-950e-bde928d4de11.png)
