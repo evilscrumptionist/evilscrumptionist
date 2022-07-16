@@ -33,6 +33,9 @@ if you are a friend of mine
 
 hello and welcome to my github profile lmao
 
+oh and ships, haters dni
+(+ fluffy agent aswell zorry)
+
 ![line](https://i.imgur.com/4M7IWwP.gif)
 
 ~
