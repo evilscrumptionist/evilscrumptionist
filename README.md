@@ -40,6 +40,5 @@ oh and ships, haters dni
 
 ![line](https://i.imgur.com/4M7IWwP.gif)
 
-~
 
-![fluffy](https://user-images.githubusercontent.com/108969826/178188023-9720e50e-01c4-4031-950e-bde928d4de11.png)
+thanks for reading !
