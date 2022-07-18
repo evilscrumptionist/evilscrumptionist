@@ -15,6 +15,8 @@
 
 -i play pt,tboi, etc etc
 
+-i dont mind cuddles, so you can cuddle with me if you want
+
 ![line](https://i.imgur.com/4M7IWwP.gif)
 
 ![uhoh](https://static.wikia.nocookie.net/bindingofisaacre_gamepedia/images/8/89/Transition_Lost_Tainted.png/revision/latest/scale-to-width-down/250?cb=20210826045000)
