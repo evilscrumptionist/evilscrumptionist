@@ -1,4 +1,5 @@
 ### about me
+
 ![line](https://i.imgur.com/4M7IWwP.gif)
 
 ![thelost](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQakTqwMD6PUaX9rIahSxWGUjrpVJRYph3tSw&usqp=CAU)
@@ -36,7 +37,8 @@ if you are a friend of mine
 hello and welcome to my github profile lmao
 
 oh and ships, haters dni
-(+ fluffy agent aswell zorry)
+(+ fluffy agent and +CLOWN+ aswell!!)
+
 
 ![line](https://i.imgur.com/4M7IWwP.gif)
 
