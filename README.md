@@ -29,8 +29,7 @@
 
 (also sometimes i just dont follow the rules of my status)
 
-┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅
-
+┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅
 
 ![them](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRW3-H7ZQyjz5H0_YnxRtzWJrK3Tv-2ARjIhg&usqp=CAU)
 
@@ -41,8 +40,8 @@ hello and welcome to my github profile lmao
 oh and ships, haters dni
 (+ fluffy agent and +CLOWN+ aswell!!)
 
-┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅
 
+┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅
 
 
 
