@@ -1,6 +1,6 @@
 ### about me
 
-┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅
+┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅
 
 ![thelost](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQakTqwMD6PUaX9rIahSxWGUjrpVJRYph3tSw&usqp=CAU)
 
@@ -18,7 +18,7 @@
 
 -i dont mind cuddles, so you can cuddle with me if you want
 
-┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅
+┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅
 
 
 ![uhoh](https://static.wikia.nocookie.net/bindingofisaacre_gamepedia/images/8/89/Transition_Lost_Tainted.png/revision/latest/scale-to-width-down/250?cb=20210826045000)
@@ -41,8 +41,8 @@ hello and welcome to my github profile lmao
 oh and ships, haters dni
 (+ fluffy agent and +CLOWN+ aswell!!)
 
-
 ┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅┅
+
 
 
 
